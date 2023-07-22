@@ -1,1 +1,0 @@
-# zerotechofficial.github.io
